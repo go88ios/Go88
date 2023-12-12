@@ -2,7 +2,7 @@
 
 Go88 Spa - Web Tải Go88 Uy Tín - Bảo Mật Nhất 2024
 
-https://ggo88.club/ - Go88 Spa là trang cập nhật link tải go88 uy tín nhất Việt Nam, domain https://ggo88.club/ được chuyển hướng từ https://go88.spa/
+Go88 Spa là trang cập nhật link tải go88 uy tín nhất Việt Nam, domain https://ggo88.club/ được chuyển hướng từ https://go88.spa/
 
 - Địa chỉ: 59-49 Đ. Trần Phú, Phường 4, Quận 5, Thành phố Hồ Chí Minh, Việt Nam
 
